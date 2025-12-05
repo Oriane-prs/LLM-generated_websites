@@ -1,5 +1,5 @@
 **Thank you for your interest in my study on the quality of websites generated with artificial intelligence (AI).**  
-On this page, you will find the participation conditions. Once you confirm that you agree with them, you will be asked to provide the link to your current academic website. The researcher will then verify that you meet the participation requirements and, if so, will send you access information for Lovable (a platform that generates websites through a chat-based interface), along with the task instructions and the survey.
+On this page, you will find the participation conditions. 
 
 ---
 
